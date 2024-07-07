@@ -35,6 +35,24 @@ One of the greatest advantages of browser-based HTML5 and WebGL games is their c
 [snow rider io](https://snowrider.pro)  
 [snow rider 3d io](https://snowrider.pro)  
 [snow rider 3d game](https://snowrider.pro)
+[Tetris Unblocked Online Game](https://snowrider.pro/game/tetris-unblocked-online-game.html)
+[Tunnel Rush](https://snowrider.pro/game/tunnel-rush.html)
+[Wordle Hint Today](https://snowrider.pro/game/wordle-hint-today.html)
+[Smash Karts Unblocked](https://snowrider.pro/game/smash-karts-unblocked.html)
+[Ovo Unblocked](https://snowrider.pro/game/ovo-unblocked.html)
+[Cookie Clicker](https://snowrider.pro/game/cookie-clicker.html)
+[Minesweeper](https://snowrider.pro/game/minesweeper.html)
+[Moto X3M](https://snowrider.pro/game/motox3m.html)
+[Minecraft Unblocked](https://snowrider.pro/game/minecraft-unblocked.html)
+[Blackjack](https://snowrider.pro/game/blackjack.html)
+[Drift Hunters Unblocked](https://snowrider.pro/game/drift-hunters-unblocked.html)
+[Run 3](https://snowrider.pro/game/run3.html)
+[Fruit Merge](https://snowrider.pro/game/fruit-merge.html)
+[Basketball Stars Unblocked](https://snowrider.pro/game/basketball-stars-unblocked.html)
+[FNAF 2 Unblocked](https://snowrider.pro/game/fnaf-2-unblocked.html)
+[Time Shooter](https://snowrider.pro/game/time-shooter.html)
+[Funny Shooter 2](https://snowrider.pro/game/funny-shooter-2.html)
+
 
 Unlike traditional games that often require specific hardware or software, Snow Rider 3D eliminates the need for additional installations or plugins, making it accessible to a broader audience. Whether you're a Windows, macOS, Linux, iOS, or Android user, you can easily dive into the thrilling world of Snow Rider 3D with just a few clicks.
 
