@@ -1,7 +1,7 @@
 # Snow Rider 3d Unblocked
 Snow Rider 3D offers a sled racing adventure down snowy slopes filled with obstacles and gifts to collect. Play Snow Rider 3D Unblocked online on Chrome.
 
-Explore the exciting world of Snow Rider 3D, a browser-based game that offers endless entertainment and helps you practice valuable computer skills. With no need for downloads or installations, playing Snow Rider 3D is as simple as visiting our website at [https://snowrider.pro](https://snowrider.pro/)
+Explore the exciting world of Snow Rider 3D, a browser-based game that offers endless entertainment and helps you practice valuable computer skills. With no need for downloads or installations, playing Snow Rider 3D is as simple as visiting our website at [https://snowrider.pro](snowr ider)
 
 Cross-Platform Compatibility
 One of the greatest advantages of browser-based HTML5 and WebGL games is their cross-platform compatibility. These games can be played on various devices, including desktop computers, laptops, tablets, and smartphones, regardless of the operating system.
